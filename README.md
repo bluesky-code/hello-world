@@ -1,2 +1,4 @@
 # hello-world
-Basic programming
+Basic programming.
+Future programmer
+Pag di pinalad magiging virus na lang.🤣
